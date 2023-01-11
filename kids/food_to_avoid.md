@@ -1,3 +1,5 @@
+https://www.mayoclinic.org/healthy-lifestyle/pregnancy-week-by-week/in-depth/pregnancy-nutrition/art-20043844
+
 Avoid seafood high in mercury
 Seafood can be a great source of protein, and the omega-3 fatty acids in many fish can promote your baby's brain and eye development. However, some fish and shellfish contain potentially dangerous levels of mercury. Too much mercury could harm your baby's developing nervous system.
 
